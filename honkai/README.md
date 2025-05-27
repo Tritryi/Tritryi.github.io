@@ -1,1 +1,0 @@
-# Tritryi.github.io
